@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new skills
 - 🌱 I’m currently learning Web development
 - 💞️ I’m looking to collaborate on web development projects
-- 📫 How to reach me anitapandey9575@gmail.com
+- 📫  anitapandey9575@gmail.com
 - 
 
 
